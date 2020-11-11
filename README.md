@@ -1,3 +1,3 @@
 # NaughtyBoi
 
-## You at own risk
+## Use at your own risk
